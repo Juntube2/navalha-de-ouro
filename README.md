@@ -1,1 +1,0 @@
-# navalha-de-ouro
